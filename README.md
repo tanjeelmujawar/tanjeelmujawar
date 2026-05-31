@@ -11,5 +11,4 @@ Data Analyst | Data Scientist | Business Analyst | Entry-Level ML Roles
 
 📍 Open to Remote, Hybrid & On-site opportunities across India
 
-📧 [mujawartanjeel@gmail.com](mailto:mujawartanjeel@gmail.com)
-💼 linkedin.com/in/tanjeel-mujawar
+📧 [mujawartanjeel@gmail.com](mailto:mujawartanjeel@gmail.com) | [💼 LinkedIn](https://www.linkedin.com/in/tanjeel-mujawar-79aa651b2/)
